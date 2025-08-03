@@ -49,7 +49,7 @@ Postingan ini menjelajah skenario “apa-andaikata” paling kelam: **Jerman mem
 
 ## 🧭 Selami Lebih Dalam
 👉 Artikel lengkap 7 menit:  
-[Klik di sini untuk baca versi penuh](link-to-full-post)
+[Klik di sini untuk baca versi penuh](https://nusantaraja.github.io/IF-Germany-Win-WW2/)
 
 ---
 
